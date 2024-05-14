@@ -93,7 +93,7 @@ The ESIIL Innovation Summit will be held at the University of Colorado Boulder E
 ### Explore Boulder Like a Local!
 Want to get out to explore while you’re here? [This website](https://www.bouldercoloradousa.com/things-to-do/) has lots of information on things to do in Boulder, such as shopping, restaurants, nightlife, and much more!
 
-### Weather and Packing
+### Weather and Parking
 Boulder is 5,430 feet in elevation and has a sunny, semi-arid climate. Hydrating during your stay is very important, as altitude sickness (headache, nausea, shortness of breath, dizziness, and tiredness) can occur. Weather conditions can change rapidly throughout each day and from day to day. Layers are always a good choice. In summer months, average high daily temperatures are in the 80s and 90s, with lows in the 50s and 60s. The sun is strong in Boulder, so please bring sunscreen, sunglasses, and a hat. Afternoon thunderstorms aren’t unusual, so a rain jacket is helpful. There are many trails near Boulder, so hiking or running shoes and a set of workout clothes can help get you outside during your stay.
 
 ### Health & Safety Resources
